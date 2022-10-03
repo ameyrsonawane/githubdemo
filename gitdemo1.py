@@ -1,1 +1,1 @@
-This is the sample file, name is Amey R Sonawane
+This is the sample file, name is Amey Sonawane
